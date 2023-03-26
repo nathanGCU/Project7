@@ -2,7 +2,7 @@
 
 * The work submitted is my own *
 
-LOOM VIDEO
+https://www.loom.com/share/acb42ad800144c8aab41dc31083332de
 
 https://github.com/nathanGCU/Project7
 
